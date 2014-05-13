@@ -1,2 +1,2 @@
-wasalnypages
+Wasalny Pages
 ============
